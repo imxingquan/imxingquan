@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Xing quan
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning English, Can you teach me?
+- 🌱 I’m learning English now
